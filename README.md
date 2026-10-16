@@ -1,0 +1,1 @@
+# shosuke-kinoshita-home.github.io
